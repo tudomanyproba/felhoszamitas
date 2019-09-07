@@ -1,0 +1,2 @@
+# felhoszamitas
+felhoszamitas kurzus
